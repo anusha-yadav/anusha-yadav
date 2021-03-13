@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @anusha-yadav
+- 👋 Hi, I’m Anusha 
 - 👀 I’m interested in learning new technologies
 - 🌱 I’m currently an undergraduate student
 
